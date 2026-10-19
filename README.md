@@ -37,6 +37,7 @@ WIWPOIWPOIWOPOWIOPWOPW
 
 
 
+<img width="329" height="85" alt="Untitled42_20261019130959" src="https://github.com/user-attachments/assets/2208754e-a8a9-4115-b69c-53450a8c29d9" />
 
 
 
