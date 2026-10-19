@@ -1,5 +1,4 @@
 
-WIWPOIWOPOIWOPOIWOWIWIWPWIWPIWPWIWPWIWPWIWPW
 
 <img width="450" align=left alt="Untitled40_20261018190641" src="https://github.com/user-attachments/assets/3d02cee0-9aed-4c3b-87e7-93a5ffe0b203" />
 
@@ -7,15 +6,10 @@ WIWPOIWOPOIWOPOIWOWIWIWPWIWPIWPWIWPWIWPWIWPW
 <details>
   <summary> $${\color{#ffdffa} \space  ࣪ ˖ click　 \space 4  .˚\space 𝑙i𝑛k𝑠 ·　 ׅ  　 ·}$$</summary>
 
-WIPWIPWIWPOW
+whats in this? links.  but its not done yet. pls wait T_T
+</details>
 
 
-<td>
-<tr></tr>
-</td> 
-
-
-WIWPOIWPOIWOPOWIOPWOPW
 
 
 
