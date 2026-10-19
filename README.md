@@ -1,6 +1,6 @@
 
 
-<img width="450" align=left alt="Untitled40_20261018190641" src="https://github.com/user-attachments/assets/3d02cee0-9aed-4c3b-87e7-93a5ffe0b203" />
+<img width="395" align=left alt="Untitled40_20261018190641" src="https://github.com/user-attachments/assets/3d02cee0-9aed-4c3b-87e7-93a5ffe0b203" />
 
 
 <details>
