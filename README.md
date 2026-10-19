@@ -16,10 +16,11 @@ whats in this? links.  but its not done yet. pls wait T_T
   <table>
     <tr>
       <td>
-     $${\color{#000000}\space i　 \space am \space   ֶָ   ࣪   ׅ  }$$　
-   $${\color{#000000}your \space greatest \space CREATION \space (⁀ᗢ⁀) \space ₎₎}$$ <br>     
+     $${\color{#ff817c}\space （´・｀ ）♡　 \space wheres \space   ֶָ   ࣪   ׅ  }$$　
+   $${\color{#6f3779}the \space butter \space chicken}$$ $${\color{#ffaa8b} tesla ?  \space ₎₎ \space ◕⩊◕ }$$ <br>     
 
-
+   </td>
+    </tr>
 
 
 
