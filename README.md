@@ -18,7 +18,7 @@ whats in this? links.  but its not done yet. pls wait T_T
       <td>
      $${\color{#ff817c}\space （´・｀ ）♡　 \space wheres \space   ֶָ   ࣪   ׅ  }$$　
    $${\color{#6f3779}the \space butter \space chicken}$$ $${\color{#ffaa8b} tesla ?  \space ₎₎ \space ◕⩊◕ }$$ <br>     
-
+$${\color{#e8377b}\space being \space   ֶָ   ࣪   ׅ  }$$　 $${\color{#ff697c}\space a \space   ֶָ}$$　$${\color{#ffcef1}\space dumb　 \space tourist ֶָ}$$ $${\color{#863d8c}\space on　\space   ֶָ}$$ $${\color{#ff887c}\space the　 \space lifesteal SMP \space   ֶָ}$$
    </td>
     </tr>
 
