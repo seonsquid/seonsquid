@@ -12,8 +12,26 @@ whats in this? links.  but its not done yet. pls wait T_T
 
 <details>
   <summary> $${\color{#ffdffa} \space  ࣪ ˖ my　 \space lovely  .˚\space  ·　 ׅFRIENDS  　 ·}$$</summary>
+  le femboy furries goon group......
   stupid tsundere [https://github.com/abcforfemboys]
+  biggie gooner ;-; [https://github.com/asrieluo/]
+  chrxina they/them [https://github.com/vilesight
+  cute vella / auel  yay!  (no gh ok?(
 
+  cute friends and people who i have added
+  gema hello!
+  avery hello!
+  vista hello!
+  xolaris hellO!
+  pixie hello!
+  val hello!
+  chuu hello!
+  baku hello!
+  shig hello!
+  sarnus hello!!!! 
+  vortex / taxduo4ver hello!
+
+  you guys know hwo u r... ok ? i love evreyeoen here platonically ok?
 </details>
 
 
