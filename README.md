@@ -10,7 +10,11 @@
 whats in this? links.  but its not done yet. pls wait T_T
 </details>
 
+<details>
+  <summary> $${\color{#ffdffa} \space  ࣪ ˖ my　 \space lovely  .˚\space  ·　 ׅFRIENDS  　 ·}$$</summary>
+  stupid tsundere [https://github.com/abcforfemboys]
 
+</details>
 
 
 
@@ -22,7 +26,6 @@ whats in this? links.  but its not done yet. pls wait T_T
 $${\color{#e8377b}\space being \space   ֶָ   ࣪   ׅ  }$$　 $${\color{#ff697c}\space a \space dumb  ֶָ}$$ $${\color{#863d8c} tourist \space on　\space   ֶָ}$$ $${\color{#ff887c}\space the　 \space lifesteal SMP \space   ֶָ}$$
    </td>
     </tr>
-
 
 
 
