@@ -12,8 +12,40 @@ whats in this? links.  but its not done yet. pls wait T_T
 
 <details>
   <summary> $${\color{#ffdffa} \space  ࣪ ˖ my　 \space lovely  .˚\space  ·　 ׅFRIENDS  　 ·}$$</summary>
+le femboy furries goon group
   
-i got lazy
+  [tsundere](https://github.com/abcforfemboys)
+
+  [gooonerrrrrrr](https://github.com/asrieluo)
+
+  [chrxINA](https://github.com/vilesight)
+
+  
+  auel / vella !!!
+
+  other lovely friends / ppli ahve hadded 
+ gema hello!
+ 
+  avery hello!
+  
+  vista hello!
+  
+  xolaris hellO!
+  
+  pixie hello!
+  
+  val hello!
+  
+  chuu hello!
+  
+  baku hello!
+  
+  shig hello!
+  
+  sarnus hello!!!! 
+  
+  vortex / taxduo4ver hello!
+ 
 </details>
 
 
