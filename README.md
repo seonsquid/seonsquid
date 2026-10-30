@@ -23,7 +23,7 @@
 
 
 pronouns.cc or ashswagg img is not DONE yet, it is still the old version ok?
-
+squiddo=ATABOOK 
 
 </details>
 
