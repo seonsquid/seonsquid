@@ -11,7 +11,6 @@
 </p>
 
 <p align="center">
-
 <details>
   <summary> $${\color{#ffdffa} \space  ࣪ ˖ click　 \space 4  .˚\space 𝑙i𝑛k𝑠 ·　 ׅ  　 ·}$$</summary>
 <a href="https://rabbitta.atabook.org/">
@@ -30,7 +29,7 @@ pronouns.cc or ashswagg img is not DONE yet, it is still the old version ok?
 
 <img width="329" height="85" alt="gif" src="https://github.com/user-attachments/assets/2d4a27e5-e167-4bad-9799-16df927da8fe" />
 
-$${\color{#ff817c}\space ♡ \space   ֶָ   ࣪   ׅ  \space squids  }$$　<a href="https://hits.sh/GitHub.com/seonsquid/hits/"><img alt="Hits" src="https://hits.sh/GitHub.com/seonsquid/hits.svg?style=flat-square&label=(%E0%B9%91%E2%95%B9%E3%81%A3%E2%95%B9%E0%B9%91)%20%20%20%20%20%E0%A3%AA%20%20%20%20%20%D7%85&color=ffbcbd&labelColor=fff9ff"/></a>
+$${\color{#ff817c}\space ♡ \space   ֶָ   ࣪   ׅ  \space squids  }$$　<a href="https://hits.sh/GitHub.com/seonsquid/hits/"><img alt="Hits" src="https://hits.sh/GitHub.com/seonsquid/hits.svg?style=flat-squarelabel=(%E0%B9%91%E2%95%B9%E3%81%A3%E2%95%B9%E0%B9%91)%20%20%20%20%20%E0%A3%AA%20%20%20%20%20%D7%85&color=ffbcbd&labelColor=fff9ff"/></a>
   <table>
     <tr>
       <td>
@@ -39,7 +38,6 @@ $${\color{#ff817c}\space ♡ \space   ֶָ   ࣪   ׅ  \space squids  }$$　<a h
 $${\color{#e8377b}\space being \space   ֶָ   ࣪   ׅ  }$$　 $${\color{#ff697c}\space a \space dumb  ֶָ}$$ $${\color{#863d8c} tourist \space on　\space   ֶָ}$$ $${\color{#ff887c}\space the　 \space lifesteal SMP \space   ֶָ}$$
    </td>
     </tr>
-
 <details>
   <summary> $${\color{#ffdffa} \space  ࣪ ˖ my　 \space lovely  .˚\space  ·　 ׅFRIENDS  　 ·}$$</summary>
 le femboy furries goon group
