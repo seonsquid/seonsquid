@@ -22,8 +22,8 @@
 
 
 
-pronouns.cc or ashswagg img is not DONE yet, it is still the old version ok?
-squiddo=ATABOOK 
+ $${\color{#ff817c} \space pronouns.cc \space or \space ashswagg \space img \space is \space not \space DONE \space yet, \space it \space is \space still \space the \space old \space version \space ok?}$$
+ $${\color{#ffdffa} \space squiddo=ATABOOK }$$
 
 </details>
 
@@ -47,11 +47,11 @@ le femboy furries goon group
   [gooonerrrrrrr](https://github.com/asrieluo)
 
   [chrxINA](https://github.com/vilesight)
+ 
+  $${\color{#ffdffa} auel / vella !!! }$$
 
-  
-  auel / vella !!!
-
-  other lovely friends / ppli ahve hadded 
+ $${\color{#6f3779}  other lovely friends / ppli ahve hadded }$$
+ 
  gema hello!
  
   avery hello!
