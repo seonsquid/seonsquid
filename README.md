@@ -29,9 +29,9 @@ squiddo=ATABOOK
 
 <img width="329" height="85" alt="gif" src="https://github.com/user-attachments/assets/2d4a27e5-e167-4bad-9799-16df927da8fe" />
 
-$${\color{#ff817c}\space ♡ \space   ֶָ   ࣪   ׅ  \space squids  }$$　<a href="https://hits.sh/GitHub.com/seonsquid/hits/"><img alt="Hits" src="https://hits.sh/GitHub.com/seonsquid/hits.svg?style=flat-squarelabel=(%E0%B9%91%E2%95%B9%E3%81%A3%E2%95%B9%E0%B9%91)%20%20%20%20%20%E0%A3%AA%20%20%20%20%20%D7%85&color=ffbcbd&labelColor=fff9ff"/></a>
-  <table>
-    <tr>
+$${\color{#cc}\space ♡ \space   ֶָ   ࣪   ׅ  \space squids  }$$　<a href="https://hits.sh/GitHub.com/seonsquid/hits/"><img alt="Hits" src="https://hits.sh/GitHub.com/seonsquid/hits.svg?style=flat-square&label=(%E2%88%AA%EF%BD%A1%E2%88%AA)%EF%BD%A1%EF%BD%A1%EF%BD%A1zzZ&extraCount=8380&color=ff817c&labelColor=faf3f4"/></a>
+<table>
+  <tr>
       <td>
      $${\color{#ff817c}\space （´・｀ ）♡　 \space wheres \space   ֶָ   ࣪   ׅ  }$$　
    $${\color{#6f3779}the \space butter \space chicken}$$ $${\color{#ffaa8b} tesla ?  \space ₎₎ \space ◕⩊◕ }$$ <br>     
