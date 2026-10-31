@@ -33,8 +33,8 @@ $${\color{#ff817c}\space ♡ \space   ֶָ   ࣪   ׅ  \space squids  }$$　<a h
 <table>
   <tr>
       <td>
-     $${\color{#ff817c}\space （´・｀ ）♡　 \space wheres \space   ֶָ   ࣪   ׅ  }$$　
-   $${\color{#6f3779}the \space butter \space chicken}$$ $${\color{#ffaa8b} tesla ?  \space ₎₎ \space ◕⩊◕ }$$ <br>     
+     $${\color{#ff817c}\space （´・｀ ）♡　 \space then \space   ֶָ   ࣪   ׅ  }$$　
+   $${\color{#6f3779}\space who \space am \space i?}$$ $${\color{#ffaa8b}\space an \space imperfect  \space ₎₎ \space design? \space ◕⩊◕ }$$ <br>     
 $${\color{#e8377b}\space being \space   ֶָ   ࣪   ׅ  }$$　 $${\color{#ff697c}\space a \space dumb  ֶָ}$$ $${\color{#863d8c} tourist \space on　\space   ֶָ}$$ $${\color{#ff887c}\space the　 \space lifesteal SMP \space   ֶָ}$$
    </td>
     </tr>
